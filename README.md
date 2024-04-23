@@ -1,0 +1,1 @@
+# SIGWEB_Pemetaan_Zonasi_Bahaya_Gempa-Bumi_Kabupaten_Sleman_Yogyakarta
